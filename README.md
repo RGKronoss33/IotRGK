@@ -11,3 +11,5 @@ Soy Diana JG main
 
 ### Otro Titulo kajksjas
 Quiero la skin Diana Favor del Invierno :c
+
+tmb quiero la de el año de dragon
